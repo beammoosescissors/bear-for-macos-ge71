@@ -1,4 +1,4 @@
-
+best Macro for Bear for macOS - task automation and custom shortcuts is the best Bear for macOS macro, featuring task automation and custom shortcuts. Safe, efficient, and
 
 
 
